@@ -1,2 +1,2 @@
-# alma-43
-aisdn8wbyubwndiwj
+# P-38
+juego del fantasma muy divertido y entretenido
